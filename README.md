@@ -6,4 +6,5 @@
 I whould really appriciate a donation:
 
 My Dogecoin adress: D5oqW173bgWmyqqFnC9UhmGRdQdp9GkTkZ
+
 Paypal: metzgera96@gmail.com
